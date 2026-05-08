@@ -1,2 +1,3 @@
-# Curr-culo-2026
+# Currculo-2026
+Meu Curriculo profissional
 Lembre-se nunca é tarde para ir atrás dos seus sonhos !!!
